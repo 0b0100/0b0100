@@ -1,1 +1,1 @@
-naraka ?
+naraka ? nararaka
